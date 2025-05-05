@@ -1,0 +1,4 @@
+# Partecipanti del gruppo:
+- 
+- 
+- 
