@@ -3,6 +3,5 @@
 - Simone Marzorati
 - 
 - 
-
-
+- Alice Macchia
 - Luigi Stigliano
